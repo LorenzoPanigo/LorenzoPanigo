@@ -2,7 +2,7 @@
 
 Estudante de Informática no Instituto Ivoti (5/7) 📚 <br>
 Sempre em busca de desafios que me façam evoluir 🚀 <br>
-Evoluindo mais a cada dia 🌱 <br> [instagram] (https://www.instagram.com/panigolorenzo/)
+Evoluindo mais a cada dia 🌱 <br>
 
 
 # 💻 Tech Stack:
