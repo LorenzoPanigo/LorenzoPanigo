@@ -1,6 +1,6 @@
 ## Olá, me chamo Lorenzo!👋
 
-Estudante de Informática no Instituto Ivoti (5/7) 📚 <br>
+Estudante de Informática no Instituto Ivoti (6/7) 📚 <br>
 Sempre em busca de desafios que me façam evoluir 🚀 <br>
 Evoluindo mais a cada dia 🌱 <br>
 
